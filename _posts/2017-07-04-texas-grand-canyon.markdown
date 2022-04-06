@@ -19,7 +19,7 @@ SOPORTE TÉCNICO PRESENCIAL: En soporte presencial puedes venir y dejar tus disp
 
 soporte tecnico via remota: podemos hacer el trabajo pero con diferencia que tu estes en tu casa y nosotros en las instalaciones como una video llamada
 
-En nuestrosa servicios tenemo muchos servicios y con buenas ofertas son las mejorees de mexico
+En nuestrosa servicios tenemo muchos servicios y con buenas ofertas son las mejorees de mexico 
 
 PARA VER QUE MAS SERVICIOS TENEMOS MARCA AL 5620468717
 
